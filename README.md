@@ -1,4 +1,4 @@
-![](https://github.com/blackcater/blackcater/raw/main/images/Hi.gif)
+![](https://99px.ru/sstorage/86/2019/04/image_862404191809087253097.gif)
 # Hi there, I'm [Elvin](https://vk.com/kovernot)
 ### Applied informatics student, Web-designer from Russia 🇷🇺
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&lines=Applied+informatics+student)](https://git.io/typing-svg)
