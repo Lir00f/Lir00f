@@ -1,4 +1,4 @@
-![](https://99px.ru/sstorage/86/2019/04/image_862404191809087253097.gif)
+![](https://im2.ezgif.com/tmp/ezgif-2-274aabc3c8.gif)
 # Hi there, I'm [Elvin](https://vk.com/kovernot)
 ### Applied informatics student, Web-designer from Russia 🇷🇺
 - 🔭 I’m currently working on my personal projects. 
